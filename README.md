@@ -1,1 +1,1 @@
-# independance
+# independence
